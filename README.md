@@ -1,0 +1,2 @@
+Solidarité pour le progrès est une organisation à but sans lucratif créée le 06/11/2020 par un médecin congolais Emilien OLEMBA ELEMBE,né dans la province du sankuuru, territoire de kole, village iwala en date du 06/11/1987.
+Vu les inégalités sociales,le non accès aux soins de santé et à l'éducation,au réchauffement climatique,un environnement polué,à l'insécurité alimentaire régissent du jour au jour, d'où l'essence de la solidarité pour le progrès qui a pour slogan<Ensemble pour un monde meilleur>
